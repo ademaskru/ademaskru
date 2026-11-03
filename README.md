@@ -46,7 +46,7 @@ Bachelor's Degree in Electrical Engineering
 ## 🤝 Let's Connect!
 
 - GitHub: [@ademaskru](https://github.com/ademaskru)
-- LinkedIn: linkedin.com/in/ademas-nur-fattah-571797443
+- LinkedIn: [linkedin.com/in/ademas-nur-fattah-571797443](linkedin.com/in/ademas-nur-fattah-571797443)
 - Email: anf30112005@gmail.com
 
 ---
